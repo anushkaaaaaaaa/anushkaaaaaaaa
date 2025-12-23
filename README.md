@@ -11,7 +11,7 @@ I'm a tech enthusiast. I am mostly interested in contributing to Open Source and
 
 👯‍♀️ I'm looking to collaborate on interesting projects
 
-📫 Reach me at:  @anushkasharan134@gmail.com
+📫 Reach me at:  anushkasharan134@gmail.com
 
 😄 Pronouns: she/her
 
